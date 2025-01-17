@@ -52,7 +52,7 @@ I'm Birava Prajapati, a tech enthusiast and creative thinker passionate about in
 ---
 
 ### 📫 How to Reach Me
-- Email: [biravaprajapati1609@gmail.com](mailto:biravaprajapati1609@gmail.com)
+- Email: [birava2002@gmail.com](mailto:birava2002@gmail.com)
 - LinkedIn: [Birava Prajapati](https://www.linkedin.com/in/birava-prajapati)
 
 ---
